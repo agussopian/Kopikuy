@@ -1,1 +1,1 @@
-kopikuyuy
+kopikuy
